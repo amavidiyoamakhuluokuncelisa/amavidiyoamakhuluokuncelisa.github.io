@@ -1,1 +1,0 @@
-# amavidiyoamakhuluokuncelisa.github.io
